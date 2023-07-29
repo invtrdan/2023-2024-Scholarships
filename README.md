@@ -1,4 +1,4 @@
-# 2023-2024-Scholarships
+# 2023-2024 Scholarships
 
 | Scholarship | Deadline | 
 | --------------- | --------------- | 
